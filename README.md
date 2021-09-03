@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NehaSindhu
+- 👋 Hi, I’m @Neha
 - 👀 I’m interested in exploring new things
 - 🌱 I’m currently learning coding
 - 📫 How to reach me
